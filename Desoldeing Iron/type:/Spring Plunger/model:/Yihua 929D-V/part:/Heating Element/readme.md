@@ -1,0 +1,2 @@
+- [YIHUA Heating Core Uesd For 929D-V Tin Sucker Electric Desoldering Iron Ceramic Heating Core](https://www.aliexpress.us/item/3256804900158166.html)
+- [YIHUA Heating Core Uesd For 929D-V Tin Sucker Electric Desoldering Iron Ceramic Heating Core](https://www.aliexpress.us/item/3256804278454474.html)
